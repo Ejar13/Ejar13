@@ -3,6 +3,6 @@
 - 🔭 currently I am a student at SMK Telkom Malang
 - 🌱 I’m currently learning Cloud Developer
 - 💬 Ask me about anything releated about cloud computing
-- 📫 How to reach me: rakhaezzar13@gmail.com
+- 📫 How to reach me: rakhaezzar13@gmail.com / @rakhaezzar
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I like hiking in the mountain
+- ⚡ Fun fact: I like hiking in the mountain and i like go to camping 
